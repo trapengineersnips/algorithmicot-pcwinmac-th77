@@ -1,4 +1,4 @@
-# 
+# Nativo algorithmic trading bot ferramentas para Mac OS | Oficial algorithmic trading bot ferramentas para PC Windows. Com monitoramento de baixa frequência e gerenciamento de chaves privadas — otimizado para máximo desempenho em cada plataforma.
 
 
 
